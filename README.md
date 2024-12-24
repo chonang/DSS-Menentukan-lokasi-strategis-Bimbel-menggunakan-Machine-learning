@@ -49,3 +49,7 @@ Dengan lokasi yang strategis, siswa akan lebih mudah mengakses layanan pendidika
 5.	Pertumbuhan Ekonomi Lokal
 Keberadaan bimbingan belajar di lokasi yang strategis berpotensi meningkatkan kegiatan ekonomi di sekitar wilayah tersebut, menciptakan peluang kerja, dan mendorong pertumbuhan bisnis pendukung seperti toko buku dan tempat makan.
 Penelitian ini diharapkan memberikan manfaat yang luas, baik dalam meningkatkan efektivitas operasional lembaga maupun memberikan dampak positif bagi masyarakat dan lingkungan sekitar.
+Video  presentasi https://youtu.be/TZLjltY8Q-8
+Peta Lamongan https://drive.google.com/file/d/1VBVzCd-hS31WaTbKrY7LxcgB89ck67Sq/view?usp=sharing
+
+
